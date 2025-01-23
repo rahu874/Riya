@@ -1,0 +1,1 @@
+A realistic pretty. And. Young woman with long .wavy brunette hair wearing a trandy .crop top ans high waisted jeans. She has a confident posh .and sligt smile on her fece she had flawless skin .subtle makeup emphasizing har eyes and in accessorize with delieare gold jewellery. Tha background. Is achie urban seting whit blurre city lights an dusk 
